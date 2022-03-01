@@ -1,1 +1,1 @@
-A website created by Students of G2 
+We will 'build' a server soon ! stay updated  
